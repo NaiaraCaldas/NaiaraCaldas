@@ -2,4 +2,4 @@
 - 👀 Interessada em Recrutamento e Seleção
 - 🌱 Estou aprendendo sobre área de Tech e estou apaixonada nesse mundo
 - 📫 Como me encontrar: https://www.linkedin.com/in/naiara-caldas-3abb8687/  ou naiara.caldas@picpay.com
-- 🖤 Sobre mim: Psicóloga apaixonada por pessoas. Há 10 anos atuando com Recrutamento e amando o que faço! O que me move são as pessoas e a entrega de um trabalho com propósito.
+- 🖤 Sobre mim: Psicóloga apaixonada por pessoas. Há 10 anos atuando com Recrutamento e amando o que faço! O que me move são as pessoas e a entrega de um trabalho com propósito. Gosto de de impactar a vida das pessoas de forma positiva.
